@@ -1,5 +1,7 @@
 # Why
 
+![Image](assets/images/p1.jpg)
+
 **TL;DR**
 
 Waist (around belly button) 42"
