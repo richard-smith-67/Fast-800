@@ -1,16 +1,14 @@
-# Why
+# Why?
 
 ![p1](https://user-images.githubusercontent.com/5879154/110377921-e1da9300-804c-11eb-9092-44846b0d32a3.JPG)
 
-**TL;DR**
+# Stats
 
 Waist (around belly button) 42"
 
 Weight 86.7kg
 
-Can't button jeans
-
-Feel like crap
+Can't button jeans without breaking my fingers
 
 ## Day -1
 
