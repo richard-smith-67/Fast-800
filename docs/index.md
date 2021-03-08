@@ -1,6 +1,7 @@
 # Why
 
-![Image](../assets/images/p1.jpg)
+
+
 
 **TL;DR**
 
