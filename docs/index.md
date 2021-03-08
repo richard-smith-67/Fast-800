@@ -32,8 +32,6 @@ I order [ketosis strips](https://www.amazon.co.uk/gp/product/B084VKSW5G/ref=ppx_
 
 Midnight - Stomach rumnbling. Can't stop thinking about eating. I know I'll never get to sleep. I crack. Half a tin of lentil and bacon soup, 2 baby beetroot and some small slices of cheese...
 
-![image](assets\images\p1.jpg)
-
 ## Day 1
 
 Weight - 86kg
@@ -45,4 +43,6 @@ Weight - 86kg
 Afternoon - lots of black coffee
 
 19:30 chicken and lentil curry (nom!)
+
+I forgot to mention I'm also attempting TRE (time restricted eating). Initially going for eating day's food in one 12hr period. May try and further restrict depending on how I feel. The idea is that the longer your body is in a fasting state the more fat is burnt. Eating before bed is especially bad as blood sugar and insulin levels remain high throughout the night. High insulin levels stops fat from breaking down.
 
