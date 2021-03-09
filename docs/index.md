@@ -50,7 +50,7 @@ I forgot to mention I'm also attempting TRE (time restricted eating). Initially 
 
 85.7kg
 
-Woke up not any hungrier than usual
+Wake up no hungrier than usual
 
 09.10 - 40g porridge, 250ml milk
 
