@@ -4,13 +4,11 @@
 
 ![image](https://user-images.githubusercontent.com/5879154/110463339-b5189100-80c9-11eb-92c2-0d7a0aa27c4c.png)
 
+Can't button jeans without breaking my fingers
+
 # Stats
 
-Waist (around belly button) 42"
-
 Weight 86.7kg
-
-Can't button jeans without breaking my fingers
 
 ## Day -1
 
