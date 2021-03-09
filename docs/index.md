@@ -28,7 +28,7 @@ I order [ketosis strips](https://www.amazon.co.uk/gp/product/B084VKSW5G/ref=ppx_
 
 7.06pm - fucking starving and pretty grumpy. Almost 24 hours since last meal. Had about five cups of black coffee and water so far today.
 
-Midnight - Stomach rumnbling. Can't stop thinking about eating. I know I'll never get to sleep. I crack. Half a tin of lentil and bacon soup, 2 baby beetroot and some small slices of cheese...
+Midnight - Stomach rumbling. Can't stop thinking about eating. I know I'll never get to sleep. I crack. Half a tin of lentil and bacon soup, 2 baby beetroot and some small slices of cheese...
 
 ## Day 1
 
