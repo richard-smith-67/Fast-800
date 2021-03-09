@@ -54,3 +54,7 @@ Wake up no hungrier than usual.
 
 13.00 - 2 egg omelette, handful of mushrooms, 1/4 onion, 3 slivers of cheese, handful of edamame beans, handful of broccoli. Actually stuffed.
 
+18:30 Same curry and amount as yesterday, handful of brocolli and edamame beans. Lemon tea.
+
+19.55 Want lots of wine. Listen to loud music instead.
+
