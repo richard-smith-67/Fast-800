@@ -26,7 +26,7 @@ I read most of the rest of Fast800 and check out some of the recipes. I make a s
 
 I order [ketosis strips](https://www.amazon.co.uk/gp/product/B084VKSW5G/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1) a [blood sugar monitor](https://www.amazon.co.uk/gp/product/B08146YKWY/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1) and some [meal replacement shake](https://www.amazon.co.uk/gp/product/B0013GKCE4/ref=ppx_yo_dt_b_asin_title_o00_s00?ie=UTF8&psc=1) just because...
 
-7.06pm - fucking starving and pretty grumpy. Almost 24 hours since last meal. Had about five cups of black coffee and water so far today.
+19:06 - fucking starving and pretty grumpy. Almost 24 hours since last meal. Had about five cups of black coffee and water so far today.
 
 Midnight - Stomach rumbling. Can't stop thinking about eating. I know I'll never get to sleep. I crack. Half a tin of lentil and bacon soup, 2 baby beetroot and some small slices of cheese...
 
@@ -36,7 +36,7 @@ Midnight - Stomach rumbling. Can't stop thinking about eating. I know I'll never
 
 08.45 - 40g porridge, 250ml milk, 1 cup black coffee
 
-12.30 - remainder of lentil and bacon soup from last night, handful of edamame beans, some broccoli and a couple of baby beetroot
+12:30 - remainder of lentil and bacon soup from last night, handful of edamame beans, some broccoli and a couple of baby beetroot
 
 Afternoon - lots of black coffee. Blood glucose monitor arrives. Getting blood from my finger proves as successful as getting blood from a stone. Stab various fingers, waste three needles. Give up in disgust. There must be a YouTube video on this (there is). Try again. Fail. Wonder if I should try stabbing a vein in my arm...
 
@@ -50,13 +50,13 @@ I forgot to mention I'm also attempting TRE (time restricted eating). Initially 
 
 Wake up no hungrier than usual.
 
-09.10 - 40g porridge, 250ml milk
+09:10 - 40g porridge, 250ml milk
 
-13.00 - 2 egg omelette, handful of mushrooms, 1/4 onion, 3 slivers of cheese, handful of edamame beans, handful of broccoli. Actually stuffed.
+13:00 - 2 egg omelette, handful of mushrooms, 1/4 onion, 3 slivers of cheese, handful of edamame beans, handful of broccoli. Actually stuffed.
 
 18:30 - Same curry and amount as yesterday, handful of brocolli and edamame beans. Lemon tea.
 
-19.55 - Want lots of wine. Listen to loud music instead.
+19:55 - Want lots of wine. Listen to loud music instead.
 
-21.04 - **Super grumpy!** Shouting at the internet. I think upstair's neighbour might have heard me. Hang up some washing and try and placate myself with lemon tea.
+21:04 - **Super grumpy!** Shouting at the internet. I think upstair's neighbour might have heard me. Hang up some washing and try and placate myself with lemon tea.
 
