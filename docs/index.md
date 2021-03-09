@@ -40,11 +40,11 @@ Weight - 86kg
 
 12.30 remainder of lentil and bacon soup from last night, handful of edamane beans, some broccoli and a couple of baby beetroot
 
-Afternoon - lots of black coffee
+Afternoon - lots of black coffee. Blood glucose monitor arrives. Getting blood from my finger proves as successful as getting blood from a stone. Stab various fingers, waste three needles. Give up in disgust. There must be a YouTube video on this (there is). Try again. Fail. Wonder if I should try stabbing a vein in my arm...
 
-19:30 chicken and lentil curry (nom!)
+19:30 chicken and lentil curry (nom!) I should add that this was a paltry 1.5 chicken thighs and a few spoonfuls of green lentils. Have put remainders in fridge/freezer.
 
-I forgot to mention I'm also attempting TRE (time restricted eating). Initially going for eating day's food in one 12hr period. May try and further restrict depending on how I feel. The idea is that the longer your body is in a fasting state the more fat is burnt. Eating before bed is especially bad as blood sugar and insulin levels remain high throughout the night. High insulin levels stops fat from breaking down.
+I forgot to mention I'm also attempting TRE (time restricted eating). Initially going for eating day's food in one 12hr period. May try and further restrict depending on how I feel. The idea is that the longer your body is in a fasting state the more fat is burnt (no shit Sherlock). Eating before bed is especially bad as blood sugar and insulin levels remain high throughout the night. High insulin levels stops fat from breaking down.
 
 ## Day 2
 
