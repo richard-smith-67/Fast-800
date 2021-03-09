@@ -58,3 +58,5 @@ Wake up no hungrier than usual.
 
 19.55 Want lots of wine. Listen to loud music instead.
 
+21.04 **Super grumpy!** Shouting at the internet. I think upstair's neighbour might have heard me. Hang up some washing and try and placate myself with lemon tea.
+
