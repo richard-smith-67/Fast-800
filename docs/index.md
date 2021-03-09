@@ -2,6 +2,8 @@
 
 ![p1](https://user-images.githubusercontent.com/5879154/110377921-e1da9300-804c-11eb-9092-44846b0d32a3.JPG)
 
+![image](https://user-images.githubusercontent.com/5879154/110463339-b5189100-80c9-11eb-92c2-0d7a0aa27c4c.png)
+
 # Stats
 
 Waist (around belly button) 42"
