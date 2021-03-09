@@ -36,7 +36,7 @@ Midnight - Stomach rumbling. Can't stop thinking about eating. I know I'll never
 
 08.45 - 40g porridge, 250ml milk, 1 cup black coffee
 
-12.30 remainder of lentil and bacon soup from last night, handful of edamane beans, some broccoli and a couple of baby beetroot
+12.30 remainder of lentil and bacon soup from last night, handful of edamame beans, some broccoli and a couple of baby beetroot
 
 Afternoon - lots of black coffee. Blood glucose monitor arrives. Getting blood from my finger proves as successful as getting blood from a stone. Stab various fingers, waste three needles. Give up in disgust. There must be a YouTube video on this (there is). Try again. Fail. Wonder if I should try stabbing a vein in my arm...
 
@@ -51,4 +51,6 @@ I forgot to mention I'm also attempting TRE (time restricted eating). Initially 
 Wake up no hungrier than usual.
 
 09.10 - 40g porridge, 250ml milk
+
+13.00 - 2 egg omelette, handful of mushrooms, 1/4 onion, 3 slivers of cheese, handful of edamame beans, handful of broccoli. Actually stuffed.
 
