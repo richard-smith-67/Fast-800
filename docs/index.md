@@ -6,13 +6,11 @@
 
 Can't button jeans without breaking my fingers
 
-# Stats
-
-Weight 86.7kg
-
 ## Day -1
 
-Breakfast - cereal, coffee and a cream croissant 
+86.7kg
+
+Breakfast - cereal, coffee and a cream croissant. 
 
 Lunch - leftover soup from day before and some cheese on toast
 
@@ -20,7 +18,7 @@ Lunch - leftover soup from day before and some cheese on toast
 
 Final snack at 8pm - 2 slices of cheese on toast with onion and salad cream (nom!)
 
-Lots of cups of coffee throughout day
+Lots of cups of coffee throughout day.
 
 ## Day 0
 
@@ -34,7 +32,7 @@ Midnight - Stomach rumnbling. Can't stop thinking about eating. I know I'll neve
 
 ## Day 1
 
-Weight - 86kg
+86kg
 
 08.45 - 40g porridge, 250ml milk, 1 cup black coffee
 
@@ -50,7 +48,7 @@ I forgot to mention I'm also attempting TRE (time restricted eating). Initially 
 
 85.7kg
 
-Wake up no hungrier than usual
+Wake up no hungrier than usual.
 
 09.10 - 40g porridge, 250ml milk
 
