@@ -46,3 +46,11 @@ Afternoon - lots of black coffee
 
 I forgot to mention I'm also attempting TRE (time restricted eating). Initially going for eating day's food in one 12hr period. May try and further restrict depending on how I feel. The idea is that the longer your body is in a fasting state the more fat is burnt. Eating before bed is especially bad as blood sugar and insulin levels remain high throughout the night. High insulin levels stops fat from breaking down.
 
+## Day 2
+
+85.7kg
+
+Woke up not any hungrier than ususal
+
+09.10 - 40g porridge, 250ml milk
+
