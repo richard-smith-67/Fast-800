@@ -64,13 +64,13 @@ Wake up no hungrier than usual.
 
 85.4kg
 
-09:00 breakfast same as yesterday
+09:00 - breakfast same as yesterday
 
-12:45 lunch same as yesterday
+12:45 - lunch same as yesterday
 
 My permanent alcohol induced grey sickly pallor seems to have lifted (5 days since last drink).
 
-18:00 same curry! (and there's more defrosting for tomorrow)
+18:00 - same curry! (and there's more defrosting for tomorrow)
 
 ## Day 5
 
