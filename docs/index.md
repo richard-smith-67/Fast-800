@@ -60,3 +60,13 @@ Wake up no hungrier than usual.
 
 21:04 - **Super grumpy!** Shouting at the internet. I think upstair's neighbour might have heard me. Hang up some washing and try and placate myself with lemon tea.
 
+## Day 3
+
+85.4kg
+
+09:00 breakfast same as yesterday
+
+12:45 lunch same as yesterday
+
+My permanent alcohol induced grey sickly pallor seems to have lifted (5 days since last drink).
+
