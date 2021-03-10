@@ -6,7 +6,7 @@
 
 ![image](https://user-images.githubusercontent.com/5879154/110463339-b5189100-80c9-11eb-92c2-0d7a0aa27c4c.png)
 
-## 06 March 2021 Day 0
+## 06 March 2021 Day before start
 
 86.7kg
 
