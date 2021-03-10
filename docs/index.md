@@ -70,3 +70,5 @@ Wake up no hungrier than usual.
 
 My permanent alcohol induced grey sickly pallor seems to have lifted (5 days since last drink).
 
+18:00 same curry! (and there's more defrosting for tomorrow)
+
