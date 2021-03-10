@@ -6,7 +6,7 @@
 
 ![image](https://user-images.githubusercontent.com/5879154/110463339-b5189100-80c9-11eb-92c2-0d7a0aa27c4c.png)
 
-## 06 March 2021 Day -1
+## 06 March 2021 Day 0
 
 86.7kg
 
@@ -20,7 +20,7 @@ Final snack at 8pm - 2 slices of cheese on toast with onion and salad cream (nom
 
 Lots of cups of coffee throughout day.
 
-## 07 March 2021 - Day 0
+## 07 March 2021 - Day 1
 
 I read most of the rest of Fast800 and check out some of the recipes. I make a shopping list and wander off to Morrison's. While in Morrison's I revise my plans and decide to kick off the diet with a small fast - nothing major, maybe 2-3 days if I can manage it. I've tried this once before and managed 2.5 days before cracking in the middle of the night and gorging on sardine sandwiches and cornflakes...
 
@@ -30,7 +30,7 @@ I order [ketosis strips](https://www.amazon.co.uk/gp/product/B084VKSW5G/ref=ppx_
 
 Midnight - Stomach rumbling. Can't stop thinking about eating. I know I'll never get to sleep. I crack. Half a tin of lentil and bacon soup, 2 baby beetroot and some small slices of cheese...
 
-## 08 March 2021 - Day 1
+## 08 March 2021 - Day 2
 
 86kg
 
@@ -44,7 +44,7 @@ Afternoon - lots of black coffee. Blood glucose monitor arrives. Getting blood f
 
 I forgot to mention I'm also attempting TRE (time restricted eating). Initially going for eating day's food in one 12hr period. May try and further restrict depending on how I feel. The idea is that the longer your body is in a fasting state the more fat is burnt (no shit Sherlock). Eating before bed is especially bad as blood sugar and insulin levels remain high throughout the night. High insulin levels stops fat from breaking down.
 
-## 09 March 2021 - Day 2
+## 09 March 2021 - Day 3
 
 85.7kg
 
@@ -60,7 +60,7 @@ Wake up no hungrier than usual.
 
 21:04 - **Super grumpy!** Shouting at the internet. I think upstair's neighbour might have heard me. Hang up some washing and try and placate myself with lemon tea.
 
-## 10 March 2021 - Day 3
+## 10 March 2021 - Day 4
 
 85.4kg
 
@@ -72,5 +72,5 @@ My permanent alcohol induced grey sickly pallor seems to have lifted (5 days sin
 
 18:00 same curry! (and there's more defrosting for tomorrow)
 
-## 11 March 2021 - Day 4
+## 11 March 2021 - Day 5
 
