@@ -72,3 +72,5 @@ My permanent alcohol induced grey sickly pallor seems to have lifted (5 days sin
 
 18:00 same curry! (and there's more defrosting for tomorrow)
 
+## 11 March 2021 - Day 4
+
