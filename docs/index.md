@@ -74,3 +74,11 @@ My permanent alcohol induced grey sickly pallor seems to have lifted (5 days sin
 
 ## Day 5
 
+85.5kg ?!
+
+09:00 - porridge
+
+12:45 - omelette
+
+I know, there's a recurring theme here...
+
