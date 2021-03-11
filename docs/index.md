@@ -82,3 +82,5 @@ My permanent alcohol induced grey sickly pallor seems to have lifted (5 days sin
 
 I know, there's a recurring theme here...
 
+18:30 - curry
+
