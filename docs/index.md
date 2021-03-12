@@ -84,3 +84,7 @@ I know, there's a recurring theme here...
 
 18:30 - curry
 
+## Day 6
+
+85.1kg
+
