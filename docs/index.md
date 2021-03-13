@@ -98,7 +98,7 @@ Porridge, omelette, curry
 
 15:00 - omelette
 
-20:00 - Prawn korma curry with cauliflower "rice". Make enough for 4. Probably eat enough for 2. Highlight of the week.
+20:00 - Prawn korma curry with cauliflower "rice". Make enough for 4. Probably eat enough for 2. Stuffed. Highlight of the week.
 
 
 
