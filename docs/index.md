@@ -88,3 +88,13 @@ I know, there's a recurring theme here...
 
 85.1kg
 
+Porridge, omelette, curry
+
+## Day 7
+
+85kg
+
+10:20 porridge
+
+
+
