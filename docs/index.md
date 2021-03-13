@@ -94,7 +94,12 @@ Porridge, omelette, curry
 
 85kg
 
-10:20 porridge
+10:20 - porridge
+
+15:00 - omelette
+
+20:00 - Prawn korma curry with cauliflower "rice". Make enough for 4. Probably eat enough for 2. Highlight of the week.
+
 
 
 
