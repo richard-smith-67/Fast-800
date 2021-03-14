@@ -100,6 +100,16 @@ Porridge, omelette, curry
 
 20:00 - Prawn korma curry with cauliflower "rice". Make enough for 4. Probably eat enough for 2. Stuffed. Highlight of the week.
 
+## Day 8
+
+85.1kg (hmm, wtaf?)
+
+11:00 - porridge
+
+14:30 - 2 bowls of home made lentil, carrot and leek soup
+
+18:00 Prawn curry. Delish.
+
 
 
 
