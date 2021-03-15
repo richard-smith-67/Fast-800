@@ -110,6 +110,12 @@ Porridge, omelette, curry
 
 18:00 Prawn curry. Delish.
 
+## Day 9
+
+84kg
+
+09:00 porridge
+
 
 
 
