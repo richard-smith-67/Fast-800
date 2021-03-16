@@ -116,6 +116,16 @@ Porridge, omelette, curry
 
 09:00 porridge
 
+12:45 curry
+
+18:00 soup and omelette
+
+## Day 10
+
+84.4kg
+
+09:00 porridge
+
 
 
 
