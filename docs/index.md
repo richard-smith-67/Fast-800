@@ -124,7 +124,18 @@ Porridge, omelette, curry
 
 84.4kg
 
-09:00 porridge
+09:00 - porridge
+
+12:45 - omellete
+
+19:30 - chicken curry
+
+## Day 11
+
+84kg
+
+09:00 - porridge
+
 
 
 
