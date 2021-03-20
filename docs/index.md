@@ -150,7 +150,7 @@ Porridge, omelette, curry
 
 18:00 - chicken curry
 
-## Day 12
+## Day 13
 
 83.7kg - sigh, I seem to have stalled somewhat...
 
