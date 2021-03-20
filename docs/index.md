@@ -146,6 +146,19 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
+12:45 - omellete
+
+18:00 - chicken curry
+
+## Day 12
+
+83.7kg - sigh, I seem to have stalled somewhat...
+
+07:45 - porridge
+
+14:30 - omellete
+
+18:30 - prawn curry with lentils
 
 
 
