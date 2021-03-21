@@ -160,6 +160,12 @@ Porridge, omelette, curry
 
 18:30 - prawn curry with lentils
 
+## Day 14
+
+83.1kg - lost 3.6kg in 2 weeks, can button 32" jeans again even if it's not pretty...
+
+10:20 - porridge
+
 
 
 
