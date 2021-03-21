@@ -126,7 +126,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omellete
+12:45 - omelete
 
 19:30 - chicken curry
 
@@ -136,7 +136,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omellete
+12:45 - omelete
 
 18:00 - chicken curry
 
@@ -165,6 +165,10 @@ Porridge, omelette, curry
 83.1kg - lost 3.6kg in 2 weeks, can button 32" jeans again even if it's not pretty...
 
 10:20 - porridge
+
+14:00 - omelete
+
+18:00 - prawn curry
 
 
 
