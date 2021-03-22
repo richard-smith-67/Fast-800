@@ -170,6 +170,16 @@ Porridge, omelette, curry
 
 18:00 - prawn curry
 
+## Day 15
+
+83.3kg 
+
+09:00 - porridge
+
+12:45 - omelete
+
+18:00 - prawn curry
+
 
 
 
