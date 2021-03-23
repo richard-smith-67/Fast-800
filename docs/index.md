@@ -180,6 +180,16 @@ Porridge, omelette, curry
 
 18:00 - prawn curry
 
+## Day 16
+
+83.1kg 
+
+09:00 - porridge
+
+12:45 - omelete
+
+18:00 - prawn curry, brocolli, sweetcorn, edamane beans
+
 
 
 
