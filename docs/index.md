@@ -190,6 +190,26 @@ Porridge, omelette, curry
 
 18:00 - prawn curry, brocolli, sweetcorn, edamane beans
 
+## Day 17
+
+82.9kg 
+
+09:00 - porridge
+
+12:45 - omelete
+
+18:00 - chicken curry
+
+## Day 18
+
+82.6kg - gettting bored of this now, it's becoming a bit of a grind.
+
+09:00 - porridge
+
+12:45 - omelete
+
+18:00 - chicken curry
+
 
 
 
