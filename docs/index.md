@@ -206,6 +206,16 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
+12:45 - omelete - go crazy and have 3 small rashers of bacon as well
+
+18:00 - chicken curry
+
+## Day 19
+
+82.3kg
+
+09:30 - porridge
+
 12:45 - omelete
 
 18:00 - chicken curry
