@@ -232,6 +232,8 @@ Don't think I should have bothered with wine. Not hungover exactly but just leth
 
 14:45 - omelette + lots of bacon
 
+19:45 - chicken curry
+
 
 
 
