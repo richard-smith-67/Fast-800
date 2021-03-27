@@ -126,7 +126,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omelete
+12:45 - omelette
 
 19:30 - chicken curry
 
@@ -136,7 +136,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omelete
+12:45 - omelette
 
 18:00 - chicken curry
 
@@ -146,7 +146,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omellete
+12:45 - omelette
 
 18:00 - chicken curry
 
@@ -156,7 +156,7 @@ Porridge, omelette, curry
 
 07:45 - porridge
 
-14:30 - omellete
+14:30 - omelette
 
 18:30 - prawn curry with lentils
 
@@ -166,7 +166,7 @@ Porridge, omelette, curry
 
 10:20 - porridge
 
-14:00 - omelete
+14:00 - omelette
 
 18:00 - prawn curry
 
@@ -176,7 +176,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omelete
+12:45 - omelette
 
 18:00 - prawn curry
 
@@ -186,7 +186,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omelete
+12:45 - omelette
 
 18:00 - prawn curry, brocolli, sweetcorn, edamane beans
 
@@ -196,7 +196,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omelete
+12:45 - omelette
 
 18:00 - chicken curry
 
@@ -206,7 +206,7 @@ Porridge, omelette, curry
 
 09:00 - porridge
 
-12:45 - omelete - go crazy and have 3 small rashers of bacon as well
+12:45 - omelette - go crazy and have 3 small rashers of bacon as well
 
 18:00 - chicken curry
 
@@ -216,9 +216,24 @@ Porridge, omelette, curry
 
 09:30 - porridge
 
-12:45 - omelete
+12:45 - omelette + bacon
 
 18:00 - chicken curry
+
+19:00 - go crazy again and have bottle of wine. First drink since starting diet
+
+## Day 20
+
+81.6kg
+
+Don't think I should have bothered with wine. Not hungover exactly but just lethargic.
+
+10:30 - porridge
+
+14:45 - omelette + lots of bacon
+
+
+
 
 
 
