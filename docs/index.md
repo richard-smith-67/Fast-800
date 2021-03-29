@@ -234,6 +234,26 @@ Don't think I should have bothered with wine. Not hungover exactly but just leth
 
 19:45 - chicken curry
 
+## Day 21
+
+82.2kg
+
+10:30 - porridge
+
+14:45 - latte
+
+19:45 - chicken curry
+
+## Day 22
+
+82.3kg
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - chicken curry
+
 
 
 
