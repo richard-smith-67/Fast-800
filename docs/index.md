@@ -276,6 +276,17 @@ Don't think I should have bothered with wine. Not hungover exactly but just leth
 
 20:00 - f this...bottle of wine
 
+## Day 25
+
+82.2kg 
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - prawn curry
+
+
 
 
 
