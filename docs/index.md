@@ -286,6 +286,26 @@ Don't think I should have bothered with wine. Not hungover exactly but just leth
 
 18:00 - prawn curry
 
+## Day 26
+
+80.9kg 
+
+10:00 - porridge
+
+18:00 - prawn curry
+
+19:00 - bottle of wine
+
+## Day 27
+
+80.2kg 
+
+11:00 - porridge
+
+
+
+
+
 
 
 
