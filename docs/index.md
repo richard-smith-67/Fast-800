@@ -314,6 +314,23 @@ Don't think I should have bothered with wine. Not hungover exactly but just leth
 
 11:00 - porridge
 
+14:00 - omelette
+
+18:00 - prawn curry
+
+## Day 29
+
+81.5kg 
+
+11:00 - porridge
+
+14:00 - omelette
+
+18:00 - fish
+
+
+
+
 
 
 
