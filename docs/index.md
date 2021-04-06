@@ -328,6 +328,20 @@ Don't think I should have bothered with wine. Not hungover exactly but just leth
 
 18:00 - fish and veg
 
+## Day 30
+
+I think I can see my breast bone. Or maybe it's a tumour. Press it a few times...I think it's my breast bone. Prays.
+
+81.4kg or thereabouts forever! Yay!
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - chicken balti
+
+20:00 - bored. Wine. Insidious.
+
 
 
 
