@@ -342,6 +342,17 @@ I think I can see my breast bone. Or maybe it's a tumour. Press it a few times..
 
 20:00 - bored. Wine. Insidious.
 
+## Day 31
+
+80.7kg
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - chicken balti
+
+
 
 
 
