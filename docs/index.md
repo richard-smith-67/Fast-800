@@ -330,7 +330,7 @@ Don't think I should have bothered with wine. Not hungover exactly but just leth
 
 ## Day 30
 
-I think I can see my breast bone. Or maybe it's a tumour. Press it a few times...I think it's my breast bone. Prays.
+I think I can see my breast bone. Or maybe it's a tumour. Press it a few times...I think it's my breast bone. Pray.
 
 81.4kg or thereabouts forever! Yay!
 
