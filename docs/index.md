@@ -352,6 +352,30 @@ I think I can see my breast bone. Or maybe it's a tumour. Press it a few times..
 
 18:00 - chicken balti
 
+## Day 32
+
+81.2kg
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - chicken balti
+
+## Day 33
+
+80.9kg
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - chicken balti
+
+
+
+
+
 
 
 
