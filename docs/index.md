@@ -372,6 +372,38 @@ I think I can see my breast bone. Or maybe it's a tumour. Press it a few times..
 
 18:00 - chicken balti
 
+## Day 34
+
+Fall from grace!
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - chicken balti
+
+20:00 - wine, big bag of crisps
+
+01:00 - 2 bowls of cereal
+
+## Day 35
+
+81.3kg 
+
+Hungover - idk, why I bother drinking any more.
+
+12:00 - porridge and remainder of last night's curry
+
+15:00 - go for long walk
+
+17:00 - latte
+
+18:00 - omelette
+
+
+
+
+
 
 
 
