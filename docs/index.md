@@ -400,6 +400,22 @@ Hungover - idk, why I bother drinking any more.
 
 18:00 - omelette
 
+## Day 36
+
+80.8kg
+
+11:00 - porridge
+
+14:00 - omelette
+
+18:00 - chicken korma
+
+## Day 37
+
+80.7kg painfully slow "progress"
+
+09:00 - porridge
+
 
 
 
