@@ -414,6 +414,18 @@ Hungover - idk, why I bother drinking any more.
 
 80.7kg painfully slow "progress"
 
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - chicken korma
+
+## Day 38
+
+80.6kg painfully slow "progress"
+
+09:00 - porridge
+
 12:45 - omelette
 
 18:00 - chicken korma
