@@ -422,7 +422,7 @@ Hungover - idk, why I bother drinking any more.
 
 ## Day 38
 
-80.6kg painfully slow "progress"
+80.6kg 
 
 09:00 - porridge
 
