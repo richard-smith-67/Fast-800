@@ -460,6 +460,20 @@ Hungover - idk, why I bother drinking any more.
 
 18:00 - chicken korma
 
+19:00 - half of large yoghurt
+
+20:00 - bottle of wine
+
+01:00 - sardines!
+
+## Day 41
+
+79.2kg 
+
+12:00 - porridge and most of rest of yoghurt
+
+
+
 
 
 
