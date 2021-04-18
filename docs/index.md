@@ -472,17 +472,17 @@ Hungover - idk, why I bother drinking any more.
 
 12:00 - porridge and most of rest of yoghurt
 
+14:00 - omelette, lots of fruit juice
 
+18:00 - large latte
 
+20:00 - lasagne and peas
 
+## Day 42
 
+80.2kg - visiting mum, different scales!
 
-
-
-
-
-
-
+11:00 - porridge 
 
 
 
