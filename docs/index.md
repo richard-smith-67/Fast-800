@@ -499,6 +499,29 @@ Hungover - idk, why I bother drinking any more.
 18:00 - red thai chicken
 
 
+## Day 43
+
+78.8kg 
+
+09:00 - porridge 
+
+12:45 - omelette
+
+15:00 - 2 biscuits!
+
+18:00 - red thai chicken + rice
+
+## Day 44
+
+TBC
+
+09:00 - porridge 
+
+12:45 - omelette
+
+18:00 - red thai chicken + rice
+
+
 
 
 
