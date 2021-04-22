@@ -513,13 +513,29 @@ Hungover - idk, why I bother drinking any more.
 
 ## Day 44
 
-TBC
+78.6kg
 
 09:00 - porridge 
 
 12:45 - omelette
 
-18:00 - red thai chicken + rice
+18:00 - red thai chicken
+
+MELTDOWN! - mum had visitors for tea
+
+Pork & Black Pudding Pie (delish), turkey slices, handful of chips salad, ice cream + strawberries, 2 chocolate biscuits, bag of crisps, 1.25 bottles of wine.
+
+## Day 45
+
+Hungover! Can't drink any more.
+
+79.3kg
+
+09:00 - porridge 
+
+12:45 - omelette
+
+
 
 
 
