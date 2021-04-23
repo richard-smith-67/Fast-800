@@ -533,6 +533,20 @@ Hungover! Can't drink any more.
 
 09:00 - porridge 
 
+12:45 - cold meat + salad
+
+18:00 - haddock, 3 small potatoes, salad
+
+2 chocolate biscuits + 1 cookie
+
+Have gone off the rails!
+
+## Day 46
+
+79.4kg
+
+09:00 - porridge 
+
 12:45 - omelette
 
 
