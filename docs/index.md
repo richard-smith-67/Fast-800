@@ -549,6 +549,10 @@ Have gone off the rails!
 
 12:45 - omelette
 
+## Day 47 and 48 - writing these off...visiting people - scoffed lots of pies, cheescake and ice cream...
+
+In fact entire week was a bit of a write off. Back on it tomorrow.
+
 
 
 
