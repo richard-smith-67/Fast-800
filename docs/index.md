@@ -553,6 +553,20 @@ Have gone off the rails!
 
 In fact entire week was a bit of a write off. Back on it tomorrow.
 
+## Day 50
+
+79.2kg
+
+09:00 - porridge 
+
+12:45 - omelette
+
+18:00 - chicken korma
+
+
+
+
+
 
 
 
