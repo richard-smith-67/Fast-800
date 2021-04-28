@@ -557,11 +557,21 @@ In fact entire week was a bit of a write off. Back on it tomorrow.
 
 79.2kg
 
-09:00 - porridge 
+09:00 - 2 bowls cereal! 
 
 12:45 - omelette
 
 18:00 - chicken korma
+
+## Day 51
+
+79.1kg
+
+09:00 - porridge
+
+12:45 - omelette
+
+
 
 
 
