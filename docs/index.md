@@ -579,7 +579,7 @@ In fact entire week was a bit of a write off. Back on it tomorrow.
 
 78.3kg
 
-09:00 - porridge
+09:00 - cereal
 
 12:45 - omelette
 
