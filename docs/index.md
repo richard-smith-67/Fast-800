@@ -571,6 +571,21 @@ In fact entire week was a bit of a write off. Back on it tomorrow.
 
 12:45 - omelette
 
+18:00 - fish curry
+
+20:00 - Jim Beam honey flavoured. Fairly disgusting but drink it anyway.
+
+## Day 52
+
+78.3kg
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - fish curry
+
+
 
 
 
