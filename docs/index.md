@@ -585,6 +585,21 @@ In fact entire week was a bit of a write off. Back on it tomorrow.
 
 18:00 - fish curry
 
+20:00 - bottle wine
+
+## Day 53 - Sat 1 May 2021
+
+78.5kg
+
+11:00 - cereal
+
+12:45 - porridge
+
+18:00 - fish curry
+
+20:00 - bottle wine
+
+
 
 
 
