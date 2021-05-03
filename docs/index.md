@@ -599,6 +599,26 @@ In fact entire week was a bit of a write off. Back on it tomorrow.
 
 20:00 - bottle wine
 
+## Day 54 - Sun 2 May 2021
+
+78.9kg
+
+11:00 - porridge
+
+14:00 - strawberry shake
+
+18:00 - chicken curry
+
+## Day 55 - Mon 3 May 2021
+
+78.9kg
+
+11:00 - porridge
+
+
+
+
+
 
 
 
