@@ -615,6 +615,22 @@ In fact entire week was a bit of a write off. Back on it tomorrow.
 
 11:00 - porridge
 
+14:00 - omelette
+
+18:00 - chicken curry
+
+## Day 56 - Tue 4 May 2021
+
+78.4kg
+
+08:45 - porridge
+
+12:45 - omelette
+
+18:00 - chicken curry
+
+
+
 
 
 
