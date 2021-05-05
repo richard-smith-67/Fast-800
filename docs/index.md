@@ -629,6 +629,18 @@ In fact entire week was a bit of a write off. Back on it tomorrow.
 
 18:00 - chicken curry
 
+## Day 57 - Tue 5 May 2021 - 1 year since dad died
+
+78.2kg
+
+08:45 - porridge
+
+12:45 - omelette
+
+18:00 - chicken curry
+
+20:00 - glass of sloe gin + bottle wine
+
 
 
 
