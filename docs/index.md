@@ -653,6 +653,15 @@ Hungover.
 
 18:00 - steak, baby potatoes, mushrooms, peas, sweetcorn, peppers
 
+## Day 61 - Sat 8 May 2021
+
+77.7kg
+
+12:00 - porridge
+
+15:00 - omelette
+
+18:00 - red thai chicken curry
 
 
 
