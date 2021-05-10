@@ -663,7 +663,17 @@ Hungover.
 
 18:00 - red thai chicken curry
 
+## Day 63 - Mon 10 May 2021
 
+78.5kg
+
+09:00 - porridge
+
+12:45 - omelette
+
+18:00 - green thai chicken curry
+
+20:00 - handful of baby toms
 
 
 
